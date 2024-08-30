@@ -2,4 +2,8 @@
 
 
 Meu nome é tiago De Amaral Teixeira
+
+- Estou Estudando na Alura
+
+
   
