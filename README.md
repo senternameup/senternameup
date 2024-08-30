@@ -12,3 +12,6 @@ Meu nome é tiago De Amaral Teixeira
 tiagodeamaralteixeira@gmail.com
 
   tiago.amaral.56679015
+
+![](https://media1.tenor.com/m/RpNXLtq7gMEAAAAC/spider-man-see-ya.gif)
+
